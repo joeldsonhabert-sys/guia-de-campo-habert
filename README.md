@@ -1,1 +1,0 @@
-# guia-de-campo-habert
